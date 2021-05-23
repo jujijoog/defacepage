@@ -27,7 +27,7 @@
 	     |      i mezzed up ur stinky bawx       |
 	     |         u hunt street bats lul        |
 	     |                                       |
-	     |    how butt frustr8 1 owt ov tin?     |
+	     |  HOW BUTT FRUSTRATED R U 1/10 Scale   |
 	     |_______________________________________|
 	     |_______________________________________|
   
@@ -44,7 +44,9 @@
 
 ~ Greetz 2 ~
 
-DigitalGangster | Computer Tricksters | SHIMMERY HUNTERS HACKING CLUB | VINKY TROYA
+DigitalGangster | Computer Tricksters | SHINYHUNTERS | VINNY TROIA | DONJUJI | SILOX | BLACKED | DJ 
+
+TRYING TO BE A SPOOKY HACKER IS LAME AND TRY HARD! BE NICE AND APPROACHABLE AND HELP PEOPLE LEARN INSTEAD OF TRYING TO BE COOL!
 </center>
 </body>
 </html>
